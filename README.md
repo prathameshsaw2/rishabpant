@@ -1,2 +1,2 @@
 # rishabpant
-Prathamesh is chutiya
+Prathamesh is a good boy
